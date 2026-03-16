@@ -1,4 +1,3 @@
-# digital-marketing
 # **Digital Marketing: The Future of Business Growth**
 
 In today’s digital age, the internet has become an important part of everyday life. People use smartphones, social media platforms, and search engines to find information, buy products, and connect with businesses. Because of this major shift in consumer behavior, companies now focus more on digital platforms to promote their services and products. This modern approach is known as digital marketing.
